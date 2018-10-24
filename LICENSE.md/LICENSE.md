@@ -1,0 +1,1 @@
+Nie okradac mnie
